@@ -1,0 +1,1 @@
+Landing page, focus, we got this, I'm not in a hurry, slowly but surely we'll get there come on I believe in you buddy.
